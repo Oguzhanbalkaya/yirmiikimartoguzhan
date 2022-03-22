@@ -1,0 +1,2 @@
+# yirmiikimartoguzhan
+deneme olarak oluşturuldu.
